@@ -1,1 +1,0 @@
-# typeical.github.io
